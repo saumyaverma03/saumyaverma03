@@ -7,9 +7,10 @@
 
 - 📫 How to reach me *saumyaaverma03@gmail.com*
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1378i0fOm-zPvijtytvljI5zz9rPKAsIe/edit?usp=sharing&ouid=101783481173018675535&rtpof=true&sd=true](https://docs.google.com/document/d/1378i0fOm-zPvijtytvljI5zz9rPKAsIe/edit?usp=sharing&ouid=101783481173018675535&rtpof=true&sd=true)
+- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1378i0fOm-zPvijtytvljI5zz9rPKAsIe/edit?usp=sharing&ouid=101783481173018675535&rtpof=true&sd=true)
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:</h3> LinkdIn- https://www.linkedin.com/in/saumya-verma03/
+
 <p align="left">
 </p>
 
